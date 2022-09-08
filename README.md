@@ -5,7 +5,8 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I’m currently working on my florence abroad application!
-- 🌱 I’m currently learning cyber security
-- ⚡ Fun fact: I Love the New York Rangers
--->🌴I traveled to Europe this Summer
+- 🧳I traveled with my best friends this Summer
+-✈️I’m currently working on my florence abroad application!
+- 🖥️ I’m currently learning cyber security
+- 💗 I live with my best friend in our own apartment
+-->🏒I love Hockey
